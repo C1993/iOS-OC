@@ -1,2 +1,3 @@
 # iOS-OC
-Objective-C
+Talk is cheap
+show me the girl
