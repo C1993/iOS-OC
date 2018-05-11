@@ -1,3 +1,4 @@
 # iOS-OC
-Talk is cheap  
-Show me the girl
+Talk is cheap
+cheap jiu cheap
+heng !~
